@@ -7,6 +7,8 @@
 
 - ⚡ Fun fact **I love traveling in Europe and studied abraod in London this summer!**
 
+- 👨‍💻 All of my projects are available at [https://www.canva.com/design/DAGTwYc2jTk/zSbTCHhfXGhbcszjZz-i3w/edit?utm_content=DAGTwYc2jTk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGTwYc2jTk/zSbTCHhfXGhbcszjZz-i3w/edit?utm_content=DAGTwYc2jTk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://fb.com/dianamehfoud" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="dianamehfoud" height="30" width="40" /></a>
