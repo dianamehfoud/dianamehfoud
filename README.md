@@ -1,4 +1,4 @@
-<h1 align="center">Hi ✈️🪩🌷, I'm Diana Mehfoud</h1>
+<h1 align="center">Hi ✈️🌷📸, I'm Diana Mehfoud</h1>
 <h3 align="center">I currently am a Junior at James Madison University, majoring in Communication Studies with a concentration in Public Relations, and minors in both Digital Studies and British Media and Communication Studies. I am a passionate professional with experience in fashion, social media marketing, public relations, and photography. I thrive in a workspace where I can be creatice and show my marketing and fashion abilities.</h3>
 
 - 📫 How to reach me **dianamehfoud@hotmail.com**
