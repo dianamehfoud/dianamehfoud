@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Diana Mehfoud</h1>
+<h1 align="center">Hi ✈️🪩🌷, I'm Diana Mehfoud</h1>
 <h3 align="center">I'm a passionate professional with experience in fashion, social media marketing, public relations, and photography. I thrive in a workspace where I can creative and show my marketing and fashion abilities.</h3>
 
 - 📫 How to reach me **dianamehfoud@hotmail.com**
